@@ -1,1 +1,0 @@
-# akunstism.com
