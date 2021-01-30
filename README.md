@@ -1,1 +1,1 @@
-# art.com
+# akunstism.com
